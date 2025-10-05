@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Viktoria
 - 👀 I’m interested in programming 
-- 🌱 I’m currently learning in my first year of college majoring in Information Systems and Programming 
+- 🌱 I’m currently learning in my second year of college majoring in Information Systems and Programming 
 - 📫 How to reach me in my tg: @selffvik
   
 
